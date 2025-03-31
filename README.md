@@ -53,7 +53,7 @@ Caso tenha sugestões ou melhorias, sinta-se à vontade paraentrar em contato!
 
 Email: wesley03soares08@gmail.com
 
-whatsapp: 85 8508-6142
+whatsapp:(85) 8508-6142
 
 Site: https://pizzaria-wn.webnode.page/
 
